@@ -1,0 +1,2 @@
+# practicasProgramacion
+Recibiendo mala capacitación. 
